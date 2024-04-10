@@ -1,6 +1,6 @@
 - 👋 Hi, I’m @ANJALI 
-  
-A passinate Web Developer.
+   im n
+
 
 
  
